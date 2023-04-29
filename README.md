@@ -1,2 +1,2 @@
 # RESUME
-It has my resume u can have look on it.
+It has my resume u can have a look on it.
